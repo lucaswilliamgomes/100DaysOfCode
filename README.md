@@ -6,3 +6,5 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 ### Two Main Rules
 1.  Code minimum an hour every day for the next 100 days.
 2.  Tweet your progress every day with the #100DaysOfCode hashtag.
+
+[Day 1](https://twitter.com/lucz_william/status/1357179442536337408)
