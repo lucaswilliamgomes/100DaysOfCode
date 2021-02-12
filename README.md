@@ -14,6 +14,7 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 5](https://twitter.com/lucz_william/status/1358543411213697033) |
 [Day 6](https://twitter.com/lucz_william/status/1359133161377189896) |
 [Day 7](https://twitter.com/lucz_william/status/1359348528108232704) |
-[Day 8](https://twitter.com/lucz_william/status/1359689300439351299)
+[Day 8](https://twitter.com/lucz_william/status/1359689300439351299) |
+[Day 9](https://twitter.com/lucz_william/status/1360081779038765056)
 
 
