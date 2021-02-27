@@ -28,5 +28,9 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 19](https://twitter.com/lucz_william/status/1363842915743711236) |
 [Day 20](https://twitter.com/lucz_william/status/1364051025628454916) |
 [Day 21](https://twitter.com/lucz_william/status/1364462372191109120) |
-[Day 22](https://twitter.com/lucz_william/status/1365135465872056320)
+[Day 22](https://twitter.com/lucz_william/status/1364896125472415752) |
+[Day 23](https://twitter.com/lucz_william/status/1365135465872056320) |
+[Day 24](https://twitter.com/lucz_william/status/1365512564600418304)
+
+
 
