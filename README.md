@@ -52,3 +52,4 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 43](https://twitter.com/lucz_william/status/1372389173022371840) |
 [Day 44](https://twitter.com/lucz_william/status/1372916505860579328) |
 [Day 45](https://twitter.com/lucz_william/status/1373333592424787974) |
+[Day 46](https://twitter.com/lucz_william/status/1373672787370475521) |
