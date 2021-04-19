@@ -79,3 +79,4 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 70](https://twitter.com/lucz_william/status/1382523252828946433) |
 [Day 71](https://twitter.com/lucz_william/status/1383428530655010818) |
 [Day 72](https://twitter.com/lucz_william/status/1383430207214817281) |
+[Day 73](https://twitter.com/lucz_william/status/1383975990666223619) |
