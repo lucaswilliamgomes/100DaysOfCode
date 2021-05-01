@@ -84,3 +84,12 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 75](https://twitter.com/lucz_william/status/1384342679836839936) |
 [Day 76](https://twitter.com/lucz_william/status/1385047450172510209) |
 [Day 77](https://twitter.com/lucz_william/status/1385050440329572352) |
+[Day 78](https://twitter.com/lucz_william/status/1385452771336404992) |
+[Day 79](https://twitter.com/lucz_william/status/1386168499551313921) |
+[Day 80](https://twitter.com/lucz_william/status/1386169399086882817) |
+[Day 81](https://twitter.com/lucz_william/status/1387160524379631619) |
+[Day 82](https://twitter.com/lucz_william/status/1387217587856158724) |
+[Day 83](https://twitter.com/lucz_william/status/1387601037305991171) |
+[Day 84](https://twitter.com/lucz_william/status/1387602637005131780) |
+[Day 85](https://twitter.com/lucz_william/status/1387978003481874434) |
+[Day 86](https://twitter.com/lucz_william/status/1388371028200591362) |
