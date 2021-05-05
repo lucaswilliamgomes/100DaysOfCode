@@ -93,3 +93,6 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 84](https://twitter.com/lucz_william/status/1387602637005131780) |
 [Day 85](https://twitter.com/lucz_william/status/1387978003481874434) |
 [Day 86](https://twitter.com/lucz_william/status/1388371028200591362) |
+[Day 87](https://twitter.com/lucz_william/status/1388741353467695104) |
+[Day 88](https://twitter.com/lucz_william/status/1389056362651561985) |
+[Day 89](https://twitter.com/lucz_william/status/1389408433712029697) |
