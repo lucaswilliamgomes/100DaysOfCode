@@ -104,3 +104,6 @@ Challenge being fulfilled by: [Lucas William Gomes](https://twitter.com/lucz_wil
 [Day 95](https://twitter.com/lucz_william/status/1391952547326353414) |
 [Day 96](https://twitter.com/lucz_william/status/1391954158983524361) |
 [Day 97](https://twitter.com/lucz_william/status/1392457909955698694) |
+[Day 98](https://twitter.com/lucz_william/status/1393022474648948738) |
+[Day 99](https://twitter.com/lucz_william/status/1393357420206907400) |
+[Day 100](https://twitter.com/lucz_william/status/1393414509977604100) |
